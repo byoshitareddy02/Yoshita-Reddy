@@ -1,3 +1,3 @@
 # Yoshita-Reddy
 First repository
-Author - Yoshita Reddy
+Author - Yoshita Reddy(Sweety)
